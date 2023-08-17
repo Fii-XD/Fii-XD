@@ -1,2 +1,4 @@
 - 👋 Hi, I’m @Fii-XD
-- KANG REKOD SC ORANG WKWK
+- I'm From Indonesia West Java
+- Suport Me dengan Starr
+- biar Semangat Up Script nya
